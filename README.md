@@ -1,1 +1,1 @@
-# Mariem-Mohamed_Class_Ib_Assignmen
+# Mariem-Mohamed_AI_and_Omics_Research_Internship_2025
